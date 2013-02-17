@@ -24,3 +24,7 @@ All images [Attribution 2.0 Generic (CC BY 2.0)](http://creativecommons.org/lice
 
 ### Col Ford and Natasha de Vere
 [image02](http://www.flickr.com/photos/col_and_tasha/5195277594/)
+
+## Avatars
+
+http://www.faceyourmanga.com/
